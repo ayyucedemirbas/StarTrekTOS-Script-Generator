@@ -4,6 +4,9 @@ Codes are from https://github.com/uragirii/Friends-Generator
 
 Training takes a very long time
 
+You can download the model from : https://drive.google.com/file/d/1rObUH2R7LebVdhd3rSKNASCj3XeFawXv/view?usp=sharing
+The loss for this model is not low. It should be trained for a long time (not on my computer)
+
 LOKAI: I know there is nothing else I am not a simple time you are.
 
 SPOCK: I have a deal with the Enterprise into the cat could start to the present mass accidents for the floor. Then we have given me a space from the planet's surface?
