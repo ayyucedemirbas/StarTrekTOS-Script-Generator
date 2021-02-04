@@ -92,7 +92,9 @@ checkpoint_callback=tf.keras.callbacks.ModelCheckpoint(
     filepath=checkpoint_prefix,
     save_weights_only=True)
 
-EPOCHS = 5
+EPOCHS = 10 #takes a long time
+#loss: 0.8658
+#epochs should be at least 20
 history = model.fit(dataset, epochs=EPOCHS, callbacks=[checkpoint_callback])
 
 #tf.train.latest_checkpoint(checkpoint_dir)
