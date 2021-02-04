@@ -4,7 +4,7 @@ Codes are from https://github.com/uragirii/Friends-Generator
 
 Training takes a very long time
 
-You can download the model from : https://drive.google.com/file/d/1rObUH2R7LebVdhd3rSKNASCj3XeFawXv/view?usp=sharing
+You can download the model from : https://drive.google.com/file/d/15Xl7Of3b7j30OztfJLOqlF6AG2yb1iAl/view?usp=sharing
 The loss for this model is not low. It should be trained for a long time (not on my computer)
 
 LOKAI: I know there is nothing else I am not a simple time you are.
