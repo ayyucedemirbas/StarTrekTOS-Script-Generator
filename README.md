@@ -7,192 +7,87 @@ Training takes a very long time
 You can download the model from : https://drive.google.com/file/d/15Xl7Of3b7j30OztfJLOqlF6AG2yb1iAl/view?usp=sharing
 The loss for this model is not low. It should be trained for a long time (not on my computer)
 
-LOKAI: I know there is nothing else I am not a simple time you are.
 
-SPOCK: I have a deal with the Enterprise into the cat could start to the present mass accidents for the floor. Then we have given me a space from the planet's surface?
+LOKAI: Your friend? You have come aboard.
+TAL [on viewscreen]: All ships damaged in the event I will go to Starfleet.
+BAILEY: Where are they?
+OXMYX: What aggression and were seeing the science might be interested in how they are accused of. Bring the ship through the body.
+(Kirk clutches his head with the rocks doorway.)
+But.
+KIRK: What became of the integrour bands?
+SPOCK: I have the capable of comparison brain circuitry patterns, tapes, power Seven and Nomad at this time. Perhaps, if he's kept quiet centre.
+KIRK: Where's Mister Seven?
+ROBERTA: All right. All right. It was taught. I must get some rest.
+TORMOLEN: Yes, sir.
+KIRK: Confirmed and encountering myself immediately.
 
-PARMEN: I shall not respond them.
+[Transporter room]
 
-(The purpose goes over to a Starship captain. It is a simple machine. Captain, the starship Enterprise is back the deflector universe to the Enterprise. My appearance ages me to escape me!
+KIRK: You're a most promising species, Mister Spock. Who knows? I didn't know what you're trying to do, but if this is an attempt, and we win.
+KIRK: Good. We coalficial engaged with a simple colouring and a lot of switch. They are trained to know.
+SPOCK: It is a force that turmusands and thirty four point seven light years from Earth. It is of any reasonable disobedient entity. I should like deal with you, but he refuses to take some time to explain in the boy with his back to us. That is all.
+KIRK: What bearing?
+SPOCK: Under double planet. A transfer when the word leaves, passing out)
+SCOTT: Exceived myself to the ship. The crystalstances, they'll be out in a minute.
 
-[Bridge]
+[Planet surface]
 
-KIRK: How is the officer in this right to this planet's surface, sir.
-
-[Main room]
-
-SCOTT [OC]: Bridge to my report, Doctor. Doctor McCoy, Mister Sulu.
-
-SULU: What is the decision.
-
-MCCOY: Oh, yes, somewhere. Now why does this ship match it? What would seem to be. Now, Captain, we are the only one chances in the shields and attack out of the alien landing party to create an instruments on the space station on the ventil field with the ancient configurations to attempt to move a shart that came on the Enterprise and the creator procedures are falles in the ship.
-
-SCOTT [OC]: Gentlemen, it can be so many of the massignatives. First Officer Spock with the galaxy.
-
-SPOCK: It would be most destroyed in the computers.
-
-ADAM: You're a mistake, sir.
-
-KIRK: What do you understand here with the best possible thing a chance to compared on Romulans were too face as we can do something armed.
-
-SCOTT: There has no little manoeuvred on the surface of the Enterprise to find out what they is like a door.
-
-SEVEN: There's an antidote to the uspees that it is not the shields to the peace of the attention.
-
-SCOTT: Mister Scott's interval. Achille a starship on the rest of the impulse power by the langular phaser banks and computers and death for him as a party of the same thing much toward the ship. I don't know how summental antidote. We have no time temperate?
-
-SPOCK: He the furnish men unless you will change our reply to the double. One of your ship.
-
-KIRK: Who is it?
-
-WESLEY [OC]: Are you sure the fact the captain was very strectual to himself in the POCK: And if we dead with the controls with our people and really attacked by an unplanation of all communications are free to compation.
-
-KIRK: Would you stand us out of it?
-
-MCCOY: Where is it?
-
-ADAM: The male things to stay as a silence. They are the Enterprise will become an invilly contact with a few minutes to the ship, and compassions now.
-
-KIRK: Spock. I demand it somewhere all along them.
-
-SPOCK: Captain, it is always master, three above restraints all units. Notify electrical tranquilliser Mister Spock were strangetted in the mady people we belong in the way you lost.
-
-SCOTT: Captain, I have just to compared the brain. He will be returned by all frequencies again.
-
-SCOTT: Landru. Hate me Rymomenon, sir.
-
-SPOCK: I caming the ship as privaling at your mind and the starship Enterprise.
-
-SCOTT: Miramanee, sir.
-
-SPOCK: The gang fourteen mark five three seconds.
-(Spock walls me for a power from Spock's cellarite.)
-
-KIRK: Scotty?
-
-SCOTT: (and commanding at his engineering, and I left a shaped on the tape space. The pain.
-
-SPOCK: A current courtesy with the medical report on my crewman was a beautiful computer.
-
-COMMANDER: It has already been most difficult to give me a found in two hundred and basic personnel aboard Procedure Command base on the minute, one one hundred twenty five minutes to board the eternity. We must kill you that we have changed one and destroy the recorder, in all the asteroids.
-
-UHURA: All owe backs party.)
-
-RAYNA: You don't want the three mark two men to the shields, and the others are deadly.
-(But you're appreciated by a malfunction. Only the power of myself as the technique of the mattered is an incertained matter.
-
-SPOCK: It this state. You will be the last hope you been taken about the ship.
-(They leave him to fight into a switch on the entire crewman has been attacked. Wh has been neathed the two of the thee who seems to use extremely landing party at the backets of the floor, then a thing like a curious men granted. Then it is still intervened by a subject order. Then is there anything you can do it, and the dead metres. All the future will serve the choice but if you can fight it fure and speak into the rocks and chous into the captain out.
+(The men are waiting for their life support.)
+SEVEN: What are you doing here?
+JOHNSON: Reporting, sir. Approximately three billion and seven hundred miles across or
+KIRK: No. Yes, that's a sicker.
+SPOCK: Gentlemen, I urge you to plan a few words to allow and entertain you made down with the present force.
+SPOCK: Indeed, there is someone to injure. It's gone.
+(A woman's screaming around the room. She is firmly blocking the message from their pample still required factors?
+DEELA: Your mission is known to us. Captain Kirk, we thought you were talking about my size, free half-breed, my wife is screen. Kirk out. Seven five journey're the matter, Mister Scott?
+SCOTT: Aye, aye, sir.
 
 [Bridge]
 
+SPOCK: Captain, the Melkotian flight is not only difficulty circuits. That is the way it is. To be controlled, if I can get them.
+SCOTT: Aye, aye, sir. (leaves)
+CHAPEL: Well, first we have to be forced to use warmth and leap the way around it. You know what I'm about to tell you what happened. (approaching menagerie) Captain, are you all right?
+KIRK: Yes, I'm fine.
+REGER: A matter shelter. Shifter Spock's engineering.
+KIRK: Mister Spock.
 
-SULU: Aye, aye, sir.
-(Spock stops the past the ship?
+[Spock's quarters]
 
-SULU: She's starting at the fact this brain. It's the bully became the ship's sensors to completely a malfunctions of this ship.
+SPOCK: The tests should have been assigned to attack each other facts. I know it could be anywhere within a visis. Took fusty five hours working, get out. Let's get him through.
+KIRK: Oh.
+SPOCK: Affirmative. Our sensors can pick up a starship commander and locked out again it too.
+KIRK: Get him out of here.
+MAN: Mister Chekov!
+CHEKOV [OC]: Source Eden, Engineer. Mister Scott. I suggest you do this to Starfleet Command to evacuate all personnel in this area.
+SPOCK [OC]: Order it enough. Completely depending for impulse power to keep us confused. Obviously the proper power is created by disrupters. This is Commander Honour Korby.
+KOR: It would be nice to make him die. What are you so wrong?
+MCCOY: The tests show you made it.
+ODONA: Then they will all be like the captain, the colony on it.
+KIRK: That's a good idea, Mister Chekov. The Lieutenant's all the time I do. As I was the matter, some of the evil must be destroyed.
+DARAS: It is not perfortable, gentlemen. This is a rose, well-training. Five hundred thousand light years from now on.
+SULU: The devices of energy is heading, Captain.
 
-SPOCK: Captain, it is [aptain. Now he commands on the turbolift. Have them seeing a period of danger, Captain.
+[Combat area]
 
-KIRK: Hold engines are then.
+KIRK: Well, I'm not reading you well.
+MCCOY: Has shown you in the name of?
+(The man leaves them)
+RAYNA: I wish I couldn't help myself. I'm staying.
+KIRK: What would you gain by fighting an ideal to you.
+SPOCK: I have none, Doctor. The Captain and the Companion is going to Artain Kirk. Enterprise to Captain Kirk. Come in, please, closing.
+MCCOY: Practically end to our supplies anywhere? We should have to go back with our way. How about the others?
+MORGIN: No, by what I would have done. I would have thorn her as she wakes. The explosion The to record a security transmitter.
+UHURA: Order?
+SPOCK: Ready.
+MCCOY: The deliverious attack to the captain's orders.
+SPOCK: I am only poisoned with this computer and a dust and placed out and flies into the corridor.)
 
-[Bridge]
+[Corridor]
 
-KIRK: Spock with us.
-
-KIRK: How did we be a matter of interesting visual control mass one of the crew members of the entire planet.
-
-SCOTT: No doubt as an entire crew has completely beamed provide computer controls, but the captain is dead for a force field in the girl changeling a million power in the backgroom.)
-
-SPOCK: I was to experience the empath
-
-
-----------------------------------------------------------------------------------------------------------------------
-
-
-Spock, the Enterprise had been discovered our prime fire.
-
-MELIK: This is my friend! You have said his head, wherever it is. It can't be foony watched. I know it.
-
-SPOCK: If you can find anything like a man like the job is gone.
-
-MIRI: No. You know you would never know. I don't know. I suggest you attack me, one of them.
-
-KIRK: No. No. No, no. For that, do you know what it means?
-
-MCCOY: Well, I thought you were there no doubt about this. Mister Scott, this is the Captain.
-
-SPOCK: Captain, if I answer our people struggle, that gives you a little while. My commander of the term you and the security of a hundred and fourteen people died and limitless of the landing party down to the same astempt on me. There is still there and seven minutes.
-
-SPOCK: Benever here in the most conversation and the men will be sending us. It would be something alone? Do you want to kill us?
-
-LAW: Is it possible they were against the crew?
-
-WITCHELL: Oh, I know. I'll be all right, but you won't be able to get at a girl.
-
-
-[Briefing room]
-
-
-
-SCOTT: Everything's nervous, Mister Spock. But what you've done trying to do this?
-
-PIKE: Or did you teach you, Doctor McCoy? I am pureleansed the emotions also the Troglytes. I remember my life.
-
-SPOCK: Changed to your statement of an execution of an antidote for the machine.
-
-COMMANDER: Is there anyone better than you better than that?
-
-SPOCK: This one may have been necessary.
-
-
-KIRK: Ship's like Lieutenant My orders of the Federation and the right to ourselves. I can't see him like your headquarters have said travelling at the moment.
-
-KIRK: There's a chase others. There's no response. I shall destroy this ship and it will provide our fields and bringing a plank. Where is at the moment they were like colony of the Body nine five seven minutes. This whole crewman lies that he wants to know.
-
-MARVICK: This is a white of your advantages, and we're liable to each other. I can't understand. You don't need all the most success of what happened on the formulas did you interfere.
-
-KIRK: Gentlemen, you and Direct Constellation. Speed in the product of the Enterprise.
-
-
-[Bridge]
-
-
-
-SPOCK: This alert all being the right thing, Captain. The only signal than we use to find out what have gave me.
-
-SPOCK: Yes, I submit to interfere with your detail which the last life remains involved in the entity of the starship Enterprise. What is your sensors, Doctor, the search party is clear, and where is here? You are friending as eleven prejudice.
-
-MCCOY: The feeling of all the creators clearly strengtheness, there's a proper attack. I will get away from here. We've got to find out wherever it is.
-
-KIRK: You have already troung to leave. Bones, I won't here anything. I've had no doubt a full report correct the last of our lives. And I'll need the adjustment.
-
-COMMANDER: The other should have had the first five hundred of your exit tribbles. I lie down. She loved you.
-(She goes to Sandona, the main sounds outside, and the bars and nice tubes into the cannon and the bioscanner disappears, and another street assain, I'll buy the future of emotion is an about this ship and perform immediately.
-(She died out of the first few moments with bait) Oh, no.
-
-NATIRA: (stroking as they hear like and leave the flock out of the sad or a few security guards beam down the corridor and a scientist translated machine for her. In a danger of the side with no mind that you and I always been let you here.
-
-SPOCK: Even converted that you might recall the fields of such specimens to the minds in her mission. Let me perform the need of some kind of mistakes alive on you. I've had to fight with you.
-
-SPOCK: Mister Scott, you have many times you believe that we can handle this with a hundred times yet. It's like a little while human live is strongest and time you know.
-
-SPOCK: This is the Captain. Some of the men in this sector. We were in the last time!
-
-Captain's log, stardate 4543.9. A life on this system.
-
-RAND: Our warning clear, sir.
-
-SPOCK: Captain.
-
-KIRK: It was necessary. I will go to your oppressors and ourselves are seeing it from the law on the planet surface and you've been monitored that the tests a prime silence shass show ourselves the rest of the firestick. Condition of normal link. And the handle is not an ancient planet. What have you done?
-
-RAEL: I also disturb the transporter room on a sensory stabbound report to the people wherever the Enterprise is present condition of the Enterprise, Commander.
-
-COMMANDER: We have no idea why you want to kill him. I'll determine whether the lies are we called our own advantage of the creatures did not hurt?
-
-LINCOLN: Well, that's a good question in the natural circumstances and millions of people. That is the metal quadrotriticale. I will not attack us and particularly needs and feliles mendions of the whole little singers manned, I will examine a hundred and fifty percent point that I can destroy all of them.
-
-KIRK: I didn't think of causes. We're going to have to let him like the First. I'm the one you'll have to have a littl
-
-
+KIRK: Arm the way it's alive. If I'd fired myself I could, I would. I wouldn't recommend a distress signal.
+PIKE: That's right, the stuff is, I got never knew. What do you think you've done to my office?
+GARROVICK: No, sir.
+KIRK: Are you willing to avoid Command, Doctor. There's a more important factor two minutes. I've lost to Vaal. He will have a look at this, sir.
+KIRK: All right, Mister Spock.
+(Spock knocks out the path, as another see, Kirk falls gently takes to it.)
+MCCOY: Jim. Captain Kirk, can you h
