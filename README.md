@@ -2,147 +2,113 @@
 
 Codes are from https://github.com/uragirii/Friends-Generator
 
-Training takes a very long time
-
-You can download the model from : https://drive.google.com/file/d/15Xl7Of3b7j30OztfJLOqlF6AG2yb1iAl/view?usp=sharing
-The loss for this model is not low. It should be trained for a long time (not on my computer)
 
 
-LOKAI: Your friend? You have come aboard.
+Kirk. I am the real Mister Oxmyx.
 
-TAL [on viewscreen]: All ships damaged in the event I will go to Starfleet.
+OXMYX: That pigsters here we're ready to leave orbit in two hands, others are here, and you'll never know live on that planet. It is dead.
 
-BAILEY: Where are they?
+VANDERBERG: First, then age, friendly. If you could get you strangers for anything else.
 
-OXMYX: What aggression and were seeing the science might be interested in how they are accused of. Bring the ship through the body.
-(Kirk clutches his head with the rocks doorway.)
+SPOCK: He said it not, Jim. There's a human characteristic of the women on your vessel. No doubt you do not dame for an unusual contrite magnetic sweep. From zero, sir. I'm picking up a subspace power show green. I have tried to clear to you for letters in the first place. All systems clear. Still no response.
 
-But.
-KIRK: What became of the integrour bands?
+KIRK: Switch to impulse.
 
-SPOCK: I have the capable of comparison brain circuitry patterns, tapes, power Seven and Nomad at this time. Perhaps, if he's kept quiet centre.
+SULU: Aye, aye, sir.
 
-KIRK: Where's Mister Seven?
+KIRK: Lieutenant, open up him to the brig. Ambassador from Gideon.
 
-ROBERTA: All right. All right. It was taught. I must get some rest.
+SULU: Captain, are we killing our permanent damage. And we have diverted the warp engine room for you. It has an equal strange visitors. We have determined not to die, Captain. He chose to devote his knowledge to one who ou are the first to explain.
 
-TORMOLEN: Yes, sir.
+KIRK: I agree. What in the name of? What I don't programmed the computer, during a tricorder scan on the ship's vintories, is it not?
 
-KIRK: Confirmed and encountering myself immediately.
+SPOCK: No, it would seem to have had an answer range.
 
-[Transporter room]
+TRELANE: And did you really want to do that?
 
-KIRK: You're a most promising species, Mister Spock. Who knows? I didn't know what you're trying to do, but if this is an attempt, and we win.
+(The bottle is playing his logs wearing a PADD) The evidence planet in the Klingon sped.
 
-KIRK: Good. We coalficial engaged with a simple colouring and a lot of switch. They are trained to know.
+KIRK: Mister Scott, how much time do we have?
 
-SPOCK: It is a force that turmusands and thirty four point seven light years from Earth. It is of any reasonable disobedient entity. I should like deal with you, but he refuses to take some time to explain in the boy with his back to us. That is all.
+SCOTT: Aye. They are. Not something or someone did not survive.
 
-KIRK: What bearing?
+KIRK: We could have jumped eneed years before you were born!
 
-SPOCK: Under double planet. A transfer when the word leaves, passing out)
+SPOCK: I've checked out the full and that means they did here not to kill him. If I do.
 
-SCOTT: Exceived myself to the ship. The crystalstances, they'll be out in a minute.
+KIRK: Good night, Spock.
 
+SPOCK: Exactly two thousand directly in our line of food.
 
-[Planet surface]
+KIRK: Thank you, Mister Spock. I mean to take such things. Go into are two oh one weeks before the Romulans have crossed the guard. Seven whips of a hunger, and a man console approaching the barrier, jacial masing transmitting station. I want full form of phaser are gone. They'll have to do much off the scale.
 
-(The men are waiting for their life support.)
+KIRK: Yes, it seems to me, too. The search particles whatsoever, it would coincided this service for the weak. Spock is his seat.)
 
-SEVEN: What are you doing here?
+SPOCK: Fascinating.
 
-JOHNSON: Reporting, sir. Approximately three billion and seven hundred miles across or
+MCCOY: This is the confine circuits.
 
-KIRK: No. Yes, that's a sicker.
-
-SPOCK: Gentlemen, I urge you to plan a few words to allow and entertain you made down with the present force.
-
-SPOCK: Indeed, there is someone to injure. It's gone.
-
-(A woman's screaming around the room. She is firmly blocking the message from their pample still required factors?
-
-DEELA: Your mission is known to us. Captain Kirk, we thought you were talking about my size, free half-breed, my wife is screen. Kirk out. Seven five journey're the matter, Mister Scott?
-
-SCOTT: Aye, aye, sir.
+SPOCK: This is Mister Scott.
 
 [Bridge]
 
-SPOCK: Captain, the Melkotian flight is not only difficulty circuits. That is the way it is. To be controlled, if I can get them.
+SPOCK: Enterprise, alert! Stand by to beam us up. I have raised and you can help Mission of peace about it, even the books on the condition in which they received us.
 
-SCOTT: Aye, aye, sir. (leaves)
+[Bridge]
 
-CHAPEL: Well, first we have to be forced to use warmth and leap the way around it. You know what I'm about to tell you what happened. (approaching menagerie) Captain, are you all right?
+KIRK [OC]: Less contact Starfleet Command. Demayed that.
 
-KIRK: Yes, I'm fine.
+EVE: We're not sure. I will tell you, let you go no good. I won't understand the dignity of every purvivors. We gave them out of there.
 
-REGER: A matter shelter. Shifter Spock's engineering.
+KIRK: We can't, Scotty.
 
-KIRK: Mister Spock.
+SCOTT: Aye. Are you ready to exercise that functioning on the effects of There are different, but one thing we're like yourselves for a new experience for monitor threats. In the fare, at the end of the city, we'll be ready.
 
-[Spock's quarters]
+[Bridge]
 
-SPOCK: The tests should have been assigned to attack each other facts. I know it could be anywhere within a visis. Took fusty five hours working, get out. Let's get him through.
+KIRK: Lieutenant, open up and start channeling it. Captain, we'll do whatever you want to do.
+(The viewscreen.) Enterprise, this is the captain. We are show that our species is distressive. They can't appreciate it.
 
-KIRK: Oh.
+KIRK: My orders and your engines considerable right to the search party, sir?
 
-SPOCK: Affirmative. Our sensors can pick up a starship commander and locked out again it too.
+KIRK: No one changes the hardmens the record of the creators. If he stopped in his hand, she's a ball of floctor. She could get to the sout broke it over. I'm going to make a deeply private before our country with his attack my men. Activate the main power banks.
 
-KIRK: Get him out of here.
+KIRK: Very well, Mister Sulu.
 
-MAN: Mister Chekov!
+SULU: No change, Captain.
 
-CHEKOV [OC]: Source Eden, Engineer. Mister Scott. I suggest you do this to Starfleet Command to evacuate all personnel in this area.
+[Janderberg's office]
 
-SPOCK [OC]: Order it enough. Completely depending for impulse power to keep us confused. Obviously the proper power is created by disrupters. This is Commander Honour Korby.
+KIRK: There's no serum! There are no McCoy.
 
-KOR: It would be nice to make him die. What are you so wrong?
+KIRK: Mister Scott?
 
-MCCOY: The tests show you made it.
+SCOTT: Exactly where I want himself, somewhat reasonable to you?
 
-ODONA: Then they will all be like the captain, the colony on it.
+KIRK: No, please. What kind of luck then like that. They are not fairly many thinking of my stuff. Well a lot diectually violated. Continuing to ship where to eat. The only reason those your histories are useless dispassing with just a month of the correct time. As human as you still have time to answer the trouble him.
 
-KIRK: That's a good idea, Mister Chekov. The Lieutenant's all the time I do. As I was the matter, some of the evil must be destroyed.
+LAW: With the captain, I do. Why? What he does?
 
-DARAS: It is not perfortable, gentlemen. This is a rose, well-training. Five hundred thousand light years from now on.
+ELIAS: The space readings were? Perhaps a thing with a an odour like that needs to be done.
 
-SULU: The devices of energy is heading, Captain.
+TYREE: All decks, secure to alert status. We have it.
 
-[Combat area]
+DEELA: Why did you like that affects our sensor? Logic differently, the century had no such primitive they're all in perfect way you were here.
 
-KIRK: Well, I'm not reading you well.
+[Gorn's injects Spock in Helmacher the only twentieth century comes around him.)
 
-MCCOY: Has shown you in the name of?
-(The man leaves them)
+SULU: He's gone.
 
-RAYNA: I wish I couldn't help myself. I'm staying.
+UHURA: The tel there appears to have wake up anything as complex as they hear the Earps in the building. She takes the globes.)
 
-KIRK: What would you gain by fighting an ideal to you.
+KIRK: Did you operate a specimen?
 
-SPOCK: I have none, Doctor. The Captain and the Companion is going to Artain Kirk. Enterprise to Captain Kirk. Come in, please, closing.
+SPOCK: Not a tribal creature, Captain, since I was lying there.
 
-MCCOY: Practically end to our supplies anywhere? We should have to go back with our way. How about the others?
+MCCOY: It's a different order. I could hardly below the firescrpon, suddenly he regains consciousness.
 
-MORGIN: No, by what I would have done. I would have thorn her as she wakes. The explosion The to record a security transmitter.
+[Jet Flavius beside their weapons. Its mission, the meteor collistres it up by Nomad flop Engineering and recording Starbase Twenty Seven.
 
-UHURA: Order?
+SCOTT: There's a Samurai after me. It is my belief that they are here you all right, Jim.
 
-SPOCK: Ready.
-
-MCCOY: The deliverious attack to the captain's orders.
-
-SPOCK: I am only poisoned with this computer and a dust and placed out and flies into the corridor.)
-
-[Corridor]
-
-KIRK: Arm the way it's alive. If I'd fired myself I could, I would. I wouldn't recommend a distress signal.
-
-PIKE: That's right, the stuff is, I got never knew. What do you think you've done to my office?
-
-GARROVICK: No, sir.
-
-KIRK: Are you willing to avoid Command, Doctor. There's a more important factor two minutes. I've lost to Vaal. He will have a look at this, sir.
-
-KIRK: All right, Mister Spock.
-(Spock knocks out the path, as another see, Kirk falls gently takes to it.)
-
-MCCOY: Jim. Captain Kirk, can you h
+KIRK: Thank you, Mister Spock. That goes back to the bridge and playing a math you at the very reason for space trip, and you will begin to underst
